@@ -2,9 +2,9 @@
 ## Electrical engineer
 
 ### Contact me
-**+375297256546**
-<mishkevichd@yandex.by>
-Belarus, Minsk
+* **+375297256546**
+* <mishkevichd@yandex.by>
+* Belarus, Minsk
 
 ### EDUCATION
 

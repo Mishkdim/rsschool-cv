@@ -1,1 +1,1 @@
-https://github.com/Mishkdim/rsschool-cv.git
+https://Mishkdim.github.io/rsschool-cv/
